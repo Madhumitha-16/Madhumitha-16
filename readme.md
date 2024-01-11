@@ -1,5 +1,5 @@
 # 💫 Madhumitha B - Passionate Web Developer
-An Engineering undergraduate pursuing Bachelor of Information Technology, with a creative, logical and problem-solving mind, self motivated, punctual, and curious about learning new technologies. L
+An Engineering undergraduate pursuing Bachelor of Information Technology, with a creative, logical and problem-solving mind, self motivated, punctual, and curious about learning new technologies. 
 
 
 ## 🌐 Socials:
