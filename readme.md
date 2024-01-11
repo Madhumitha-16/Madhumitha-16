@@ -1,5 +1,5 @@
-# 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+# 💫 Madhumitha B - Passionate Web Developer
+An Engineering undergraduate pursuing Bachelor of Information Technology, with a creative, logical and problem-solving mind, self motivated, punctual, and curious about learning new technologies. L
 
 
 ## 🌐 Socials:
